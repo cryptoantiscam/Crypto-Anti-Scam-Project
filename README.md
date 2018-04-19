@@ -1,1 +1,0 @@
-# Crypto-Anti-Scam-Project
